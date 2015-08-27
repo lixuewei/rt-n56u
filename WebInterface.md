@@ -1,0 +1,1 @@
+Sorry, but this information only on <a href='http://code.google.com/p/rt-n56u/wiki/WebInterface?wl=ru'>Russian WiKi page</a> now.
